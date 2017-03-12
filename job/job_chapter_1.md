@@ -1,45 +1,44 @@
 
-1There was a man in the land of Uz whose name was Job, and that man was sincere and upright, God-fearing and shunning evil.
-2Now seven sons and three daughters were born to him.
+1 There was a man in the land of Uz, whose name was Job; and that man was perfect and upright, and one that feared God, and eschewed evil.
 
-3His livestock consisted of seven thousand sheep, three thousand camels, five hundred yoke of cattle, five hundred she- donkeys, and very much production; and the man was greater than all the children of the East.
+2 And there were born unto him seven sons and three daughters.
 
-4Now his sons would go and make a feast in each one's house on his day, and they would send and invite their three sisters to eat and drink with them.
+3 His substance also was seven thousand sheep, and three thousand camels, and five hundred yoke of oxen, and five hundred she asses, and a very great household; so that this man was the greatest of all the men of the east.
 
-5Now it would come about when the cycle of the feasting days would be over, that Job would send and summon them, and offer up burnt-offerings early in the morning burnt- offerings according to the number of all of them, for Job said, "Perhaps my sons have sinned and blasphemed God in their hearts." So would Job do all the days.
+4 And his sons went and feasted in their houses, every one his day; and sent and called for their three sisters to eat and to drink with them.
 
-6Now the day came about, and the angels of God came to stand beside the Lord, and the Adversary, too, came among them.
+5 And it was so, when the days of their feasting were gone about, that Job sent and sanctified them, and rose up early in the morning, and offered burnt offerings according to the number of them all: for Job said, It may be that my sons have sinned, and cursed God in their hearts. Thus did Job continually.
 
-7The Lord said to the Adversary, "Where are you coming from?" And the Adversary answered the Lord and said, "From going to and fro on the earth and from walking in it."
+6 Now there was a day when the sons of God came to present themselves before the Lord, and Satan came also among them.
 
-8Now the Lord said to the Adversary, "Have you paid attention to My servant Job? For there is none like him on earth, a sincere and upright man, God-fearing and shunning evil."
+7 And the Lord said unto Satan, Whence comest thou? Then Satan answered the Lord, and said, From going to and fro in the earth, and from walking up and down in it.
 
-9And the Adversary answered the Lord and said, "Does Job fear God for nothing?
+8 And the Lord said unto Satan, Hast thou considered my servant Job, that there is none like him in the earth, a perfect and an upright man, one that feareth God, and escheweth evil?
 
-10Haven't You made a hedge around him, his household, and all that he has on all sides? You have blessed the work of his hands, and his livestock has spread out in the land.
+9 Then Satan answered the Lord, and said, Doth Job fear God for nought?
 
-11But now, stretch forth Your hand and touch all that he has, will he not blaspheme You to Your face?"
+10 Hast not thou made an hedge about him, and about his house, and about all that he hath on every side? thou hast blessed the work of his hands, and his substance is increased in the land.
 
-12Now the Lord said to the Adversary, "Behold, all that he has is in your hands; only upon him do not stretch forth your hand." Now the Adversary left the presence of the Lord.
+11 But put forth thine hand now, and touch all that he hath, and he will curse thee to thy face.
 
-13Now the day came about that his sons and daughters were dining and drinking wine at the home of their firstborn brother,
+12 And the Lord said unto Satan, Behold, all that he hath is in thy power; only upon himself put not forth thine hand. So Satan went forth from the presence of the Lord.
 
-14and a messenger came to Job and said, "The cattle were plowing, and the she-donkeys were grazing beside them,
+13 And there was a day when his sons and his daughters were eating and drinking wine in their eldest brother's house:
 
-15and Sheba fell upon them and took them, and they slew the youths by the sword, and only I alone escaped to tell you."
+14 And there came a messenger unto Job, and said, The oxen were plowing, and the asses feeding beside them:
 
-16This one was still talking, and another one came and said, "A tremendous fire fell from heaven and burned the flocks and the youths and consumed them; only I alone escaped to tell you."
+15 And the Sabeans fell upon them, and took them away; yea, they have slain the servants with the edge of the sword; and I only am escaped alone to tell thee.
 
-17This one was still talking, and another one came and said, "Chaldeans formed three bands, spread out on the camels and took them, and slew the youths with the sword, and only I alone escaped to tell you."
+16 While he was yet speaking, there came also another, and said, The fire of God is fallen from heaven, and hath burned up the sheep, and the servants, and consumed them; and I only am escaped alone to tell thee.
 
-18While this one was still talking, another one came and said, "Your sons and daughters were dining and drinking wine at the home of their firstborn brother,
+17 While he was yet speaking, there came also another, and said, The Chaldeans made out three bands, and fell upon the camels, and have carried them away, yea, and slain the servants with the edge of the sword; and I only am escaped alone to tell thee.
 
-19when, behold, a great wind came from the other side of the desert, and struck the four corners of the house; it fell upon the youths, who died, and only I alone escaped to tell you."
+18 While he was yet speaking, there came also another, and said, Thy sons and thy daughters were eating and drinking wine in their eldest brother's house:
 
-20Then Job stood up, and rent his robe and tore his hair; then he fell to the ground and prostrated himself.
+19 And, behold, there came a great wind from the wilderness, and smote the four corners of the house, and it fell upon the young men, and they are dead; and I only am escaped alone to tell thee.
 
-21And he said, "From my mother's womb, I emerged naked, and I will return there naked. The Lord gave and the Lord took; may the name of the Lord be blessed."
+20 Then Job arose, and rent his mantle, and shaved his head, and fell down upon the ground, and worshipped,
 
-22Despite all this, Job did not sin, neither did he ascribe unseemliness to God.
+21 And said, Naked came I out of my mother's womb, and naked shall I return thither: the Lord gave, and the Lord hath taken away; blessed be the name of the Lord.
 
-[Iyov - Job - Chapter 1 - Tanakh Online - Torah - Bible](http://www.chabad.org/library/bible_cdo/aid/16403#lt=primary)
+22 In all this Job sinned not, nor charged God foolishly.
