@@ -9,6 +9,7 @@
 5Now it would come about when the cycle of the feasting days would be over, that Job would send and summon them, and offer up burnt-offerings early in the morning burnt- offerings according to the number of all of them, for Job said, "Perhaps my sons have sinned and blasphemed God in their hearts." So would Job do all the days.
 
 6Now the day came about, and the angels of God came to stand beside the Lord, and the Adversary, too, came among them.
+
 7The Lord said to the Adversary, "Where are you coming from?" And the Adversary answered the Lord and said, "From going to and fro on the earth and from walking in it."
 
 8Now the Lord said to the Adversary, "Have you paid attention to My servant Job? For there is none like him on earth, a sincere and upright man, God-fearing and shunning evil."
