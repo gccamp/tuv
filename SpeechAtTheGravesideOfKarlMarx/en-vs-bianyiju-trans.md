@@ -1,23 +1,23 @@
-Speech at the Grave of Karl Marx
+《在马克思墓前的讲话》马列局译本
 
-Frederick Engels
+恩格斯
 
-On the 14th of March, at a quarter to three in the afternoon, the greatest living thinker ceased to think. He had been left alone for scarcely two minutes, and when we came back we found him in his armchair, peacefully gone to sleep -- but for ever.
+3月14日下午两点三刻，当代最伟大的思想家停止思想了。让他一个人留在房里还不到两分钟，当我们进去的时候，便发现他在安乐椅上安静地睡着了——但已经永远地睡着了。
 
-An immeasurable loss has been sustained both by the militant proletariat of Europe and America, and by historical science, in the death of this man. The gap that has been left by the departure of this mighty spirit will soon enough make itself felt.
+这个人的逝世，对于欧美战斗的无产阶级，对于历史科学，都是不可估量的损失。这位巨人逝世以后所形成的空白，不久就会使人感觉到。
 
-Just as Darwin discovered the law of development or organic nature, so Marx discovered the law of development of human history: the simple fact, hitherto concealed by an overgrowth of ideology, that mankind must first of all eat, drink, have shelter and clothing, before it can pursue politics, science, art, religion, etc.; that therefore the production of the immediate material means, and consequently the degree of economic development attained by a given people or during a given epoch, form the foundation upon which the state institutions, the legal conceptions, art, and even the ideas on religion, of the people concerned have been evolved, and in the light of which they must, therefore, be explained, instead of vice versa, as had hitherto been the case.
+正像达尔文发现有机界的发展规律一样，马克思发现了人类历史的发展规律，即历来为繁芜丛杂的意识形态所掩盖着的一个简单事实：人们首先必须吃、喝、住、穿，然后才能从事政治、科学、艺术、宗教等等；所以，直接的物质的生活资料的生产，从而一个民族或一个时代的一定的经济发展阶段，便构成基础，人们的国家设施、法的观点、艺术以至宗教观念，就是从这个基础上发展起来的，因而，也必须由这个基础来解释，而不是像过去那样做得相反。
 
-But that is not all. Marx also discovered the special law of motion governing the present-day capitalist mode of production, and the bourgeois society that this mode of production has created. The discovery of surplus value suddenly threw light on the problem, in trying to solve which all previous investigations, of both bourgeois economists and socialist critics, had been groping in the dark.
+不仅如此。马克思还发现了现代资本主义生产方式和它所产生的资产阶级社会的特殊的运动规律。由于剩余价值的发现，这里就豁然开朗了，而先前无论资产阶级经济学家或者社会主义批评家所做的一切研究都只是在黑暗中摸索。
 
-Two such discoveries would be enough for one lifetime. Happy the man to whom it is granted to make even one such discovery. But in every single field which Marx investigated -- and he investigated very many fields, none of them superficially -- in every field, even in that of mathematics, he made independent discoveries.
+一生中能有这样两个发现，该是很够了。即使只能作出一个这样的发现，也已经是幸福的了。但是马克思在他所研究的每一个领域，甚至在数学领域，都有独到的发现，这样的领域是很多的，而且其中任何一个领域他都不是浅尝辄止。
 
-Such was the man of science. But this was not even half the man. Science was for Marx a historically dynamic, revolutionary force. However great the joy with which he welcomed a new discovery in some theoretical science whose practical application perhaps it was as yet quite impossible to envisage, he experienced quite another kind of joy when the discovery involved immediate revolutionary changes in industry, and in historical development in general. For example, he followed closely the development of the discoveries made in the field of electricity and recently those of Marcel Deprez.
+他作为科学家就是这样。但是这在他身上远不是主要的。在马克思看来，科学是一种在历史上起推动作用的、革命的力量。任何一门理论科学中的每一个新发现——它的实际应用也许还根本无法预见——都使马克思感到衷心喜悦，而当他看到那种对工业、对一般历史发展立即产生革命性影响的发现的时候，他的喜悦就非同寻常了。例如，他曾经密切注视电学方面各种发现的进展情况，不久以前，他还密切注视马赛尔·德普勒的发现。
 
-For Marx was before all else a revolutionist. His real mission in life was to contribute, in one way or another, to the overthrow of capitalist society and of the state institutions which it had brought into being, to contribute to the liberation of the modern proletariat, which he was the first to make conscious of its own position and its needs, conscious of the conditions of its emancipation. Fighting was his element. And he fought with a passion, a tenacity and a success such as few could rival. His work on the first Rheinische Zeitung (1842), the Paris Vorwarts (1844), the Deutsche Brusseler Zeitung (1847), the Neue Rheinische Zeitung (1848-49), the New York Tribune (1852-61), and, in addition to these, a host of militant pamphlets, work in organisations in Paris, Brussels and London, and finally, crowning all, the formation of the great International Working Men's Association -- this was indeed an achievement of which its founder might well have been proud even if he had done nothing else.
+因为马克思首先是一个革命家。他毕生的真正使命，就是以这种或那种方式参加推翻资本主义社会及其所建立的国家设施的事业，参加现代无产阶级的解放事业，正是他第一次使现代无产阶级意识到自身的地位和需要，意识到自身解放的条件。斗争是他的生命要素。很少有人像他那样满腔热情、坚韧不拔和卓有成效地进行斗争。最早的《莱茵报》（1842年），巴黎的《前进报》（1844年），《德意志—布鲁塞尔报》（1847年），《新莱茵报》（1848—1849年），《纽约每日论坛报》（1852—1861年），以及许多富有战斗性的小册子，在巴黎、布鲁塞尔和伦敦各组织中的工作，最后，作为全部活动的顶峰，创立伟大的国际工人协会，做为这一切工作的完成——老实说，协会的这位创始人即使没有别的什么建树，单凭这一成果也可以自豪。
 
-And, consequently, Marx was the best hated and most calumniated man of his time. Governments, both absolutist and republican, deported him from their territories. Bourgeois, whether conservative or ultra-democratic, vied with one another in heaping slanders upon him. All this he brushed aside as though it were a cobweb, ignoring it, answering only when extreme necessity compelled him. And he died beloved, revered and mourned by millions of revolutionary fellow workers -- from the mines of Siberia to California, in all parts of Europe and America -- and I make bold to say that, though he may have had many opponents, he had hardly one personal enemy.
+正因为这样，所以马克思是当代最遭忌恨和最受诬蔑的人。各国政府——无论专制政府或共和政府，都驱逐他；资产者——无论保守派或极端民主派，都竞相诽谤他，诅咒他。他对这一切毫不在意，把它们当作蛛丝一样轻轻拂去，只是在万不得已时才给以回敬。现在他逝世了，在整个欧洲和美洲，从西伯利亚矿井到加利福尼亚，千百万革命战友无不对他表示尊敬、爱戴和悼念，而我敢大胆地说：他可能有过许多敌人，但未必有一个私敌。
 
-His name will endure through the ages, and so also will his work.
+他的英名和事业将永垂不朽！
 
-Highgate Cemetery, London. March 17, 1883
+恩格斯写于1883年
