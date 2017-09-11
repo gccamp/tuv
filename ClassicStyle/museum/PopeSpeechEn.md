@@ -1,23 +1,23 @@
-### An Example of Classic Style
+### 古典文风实例
 
-Pope Francis' speech
+### 教宗方济各的演讲
 
-Brothers and sisters, good evening!
+弟兄姊妹们，晚上好：
 
-You know that it was the duty of the Conclave to give Rome a Bishop. It seems that my brother Cardinals have gone to the ends of the earth to get one... but here we are... I thank you for your welcome. The diocesan community of Rome now has its Bishop. Thank you! 
+你们知道，这次枢密会议的任务就是为罗马选一位主教。看上去我的枢机弟兄们快要走到世界的尽头来找到这一位…………现在我们在这儿了，我谢谢你们的欢迎。罗马教区的团体有主教了，谢谢你们!
 
-And first of all, I would like to offer a prayer for our Bishop Emeritus, Benedict XVI. Let us pray together for him, that the Lord may bless him and that Our Lady may keep him.
+首先，我愿为我们的荣休主教本笃十六世祈祷。让我们一起为他祈祷，愿主降福他，也愿圣母看顾他。
 
-(Our Father... Hail Mary... Glory Be... )
+（教宗领念）我们的天父……万福玛利亚……愿光荣归于父。
 
-And now, we take up this journey: Bishop and People. This journey of the Church of Rome which presides in charity over all the Churches. A journey of fraternity, of love, of trust among us. Let us always pray for one another. Let us pray for the whole world, that there may be a great spirit of fraternity. It is my hope for you that this journey of the Church, which we start today, and in which my Cardinal Vicar, here present, will assist me, will be fruitful for the evangelization of this most beautiful city.
+现在，让我们开始这个旅程，以主教和上主子民的身份。罗马教会的旅程，也就是在爱德中主持所有的教会。这是一个兄弟团契与爱的旅程，也是我们彼此信赖的旅程。让我们大家为彼此祈祷。让我们为全世界祈祷，愿兄弟友爱的精神弘扬四方。我希望今日我们开始的教会的天路历程，在我的代理枢机协助下，为这美丽城市的福音事业结出许多果子。
 
-And now I would like to give the blessing, but first – first I ask a favor of you: before the Bishop blesses his people, I ask you to pray to the Lord that he will bless me: the prayer of the people asking the blessing for their Bishop. Let us make, in silence, this prayer: your prayer over me.
+现在，我想给你们祝福，但是在这之前，请帮我一个忙：在主教祝福他的子民之前，我请求你们向上主祈祷，愿祂降福于我…………上主子民的祈祷祝福他们的主教。让我们静默片刻，使你们的祈祷庇荫我。
 
-(...)
+（全体静默，教宗俯身……）
 
-Now I will give the Blessing to you and to the whole world, to all men and women of good will.
+现在，我要祝福你们和全世界，祝福所有怀有善念的男女老幼。
 
- (Blessing)
- 
-Brothers and sisters, I leave you now. Thank you for your welcome. Pray for me and until we meet again. We will see each other soon. Tomorrow I wish to go and pray to Our Lady, that she may watch over all of Rome. Good night and sleep well!
+（教宗的降福）
+
+兄弟姊妹们，我现在要离开了。谢谢你们的欢迎。为我祈祷，直到再相聚。我们很快会再相见。明天我愿去向圣母祈祷，求她看顾罗马！晚安，睡个好觉！
