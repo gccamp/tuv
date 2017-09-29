@@ -1,171 +1,171 @@
-A Clean, Well-Lighted Place
+一个干净明亮的地方
 
-BY ERNEST HEMINGWAY
+作者：海明威 译者：曹庸
 
-It was very late and everyone had left the cafe except an old man who sat in the shadow the leaves of the tree made against the electric light. In the day time the street was dusty, but at night the dew settled the dust and the old man liked to sit late because he was deaf and now at night it was quiet and he felt the difference. The two waiters inside the cafe knew that the old man was a little drunk, and while he was a good client they knew that if he became too drunk he would leave without paying, so they kept watch on him. 
+　　时间很晚了，大家都离开餐馆，只有一个老人还坐在树叶挡住灯光的阴影里。白天里，街上尽是尘埃，到得晚上，露水压住了尘埃。这个老人喜欢坐得很晚，因为他是个聋子，现在是夜里，十分寂静，他感觉得到跟白天的不同。呆在餐馆里的两个侍者知道这老人有点儿醉了，他虽然是个好主顾，可是，他们知道，如果他喝得太醉了，他会不付账就走，所以他们一直在留神他。 
 
-"Last week he tried to commit suicide," one waiter said. 
+　　"上个星期他想自杀，"一个侍者说。 
 
-"Why?" 
+　　"为什么？" 
 
-"He was in despair." 
+　　"他绝望啦。" 
 
-"What about?" 
+　　"干吗绝望？" 
 
-"Nothing." 
+　　"没事儿。" 
 
-"How do you know it was nothing?" 
+　　"你怎么知道是没事儿？" 
 
-"He has plenty of money." 
+　　"他有很多钱。" 
 
-They sat together at a table that was close against the wall near the door of the cafe and looked at the terrace where the tableswere all empty except where the old man sat in the shadow of the leaves of the tree that moved slightly in the wind. A girl and a soldier went by in the street. The street light shone on the brass number on his collar. The girl wore no head covering and hurried beside him. 
+他们一起坐在紧靠着餐馆大门墙边的桌旁，眼睛望着平台，那儿的桌子全都空无一人，只有那个老人坐在随风轻轻飘拂的树叶的阴影里。有个少女和一个大兵走过大街。街灯照在他那领章的铜号码上。那个少女没戴帽子，在他身旁匆匆走着。 
 
-"The guard will pick him up," one waiter said. 
+　　"警卫队会把他逮走，"一个侍者说。 
 
-"What does it matter if he gets what he's after?" 
+　　"如果他到手了他要找的东西，那又有什么关系呢？" 
 
-"He had better get off the street now. The guard will get him. They went by five minutes ago." 
+　　"他这会儿还是从街上溜走为好。警卫队会找他麻烦，他们五分钟前才经过这里。" 
 
-The old man sitting in the shadow rapped on his saucer with his glass. The younger waiter went over to him. 
+　　那老人坐在阴影里，用杯子敲敲茶托。那个年纪比较轻的侍者上他那儿去。 
 
-"What do you want?" 
+　　"你要什么？" 
 
-The old man looked at him. "Another brandy," he said. 
+　　老人朝他看了看。"再来杯白兰地，"他说。 
 
-"You'll be drunk," the waiter said. The old man looked at him. The waiter went away. 
+　　"你会喝醉的，"侍者说。老人朝他看了一看。侍者走开了。 
 
-"He'll stay all night," he said to his colleague. "I'm sleepy now.I never get into bed before three o'clock. He should have killed himself last week." 
+　　"他会通宵呆在这里，"他对他的同事说。"我这会儿真想睡。我从来没有在三点钟以前睡觉过。他应该在上星期就自杀了。" 
 
-The waiter took the brandy bottle and another saucer from thecounter inside the cafe and marched out to the old man's table. Heput down the saucer and poured the glass full of brandy. 
+　　侍者从餐馆里的柜台上拿了一瓶白兰地和另一个茶托，大步走了出来，送到老人桌上。他放下茶托，把杯子倒满了白兰地。 
 
-"You should have killed yourself last week," he said to the deafman. The old man motioned with his finger. "A little more," hesaid. The waiter poured on into the glass so that the brandy slopped over and ran down the stem into the top saucer of the pile."Thank you," the old man said. The waiter took the bottle back inside the cafe. He sat down at the table with his colleague again.
+　　"你应该在上星期就自杀了，"他对那个聋子说。老人把手指一晃。"再加一点，"他说。侍者又往杯子里倒酒，酒溢了出来，顺着高脚杯的脚流进了一叠茶托的第一只茶托。"谢谢你，"老人说。侍者把酒瓶拿回到餐馆去。他又同他的同事坐在桌旁。 
 
-"He's drunk now," he said. 
+　　"他这会儿喝醉了，"他说。 
 
-"He's drunk every night." 
+　　"他每天晚上都喝醉。" 
 
-"What did he want to kill himself for?" 
+　　"他干吗要自杀呀？" 
 
-"How should I know." 
+　　"我怎么知道。" 
 
-"How did he do it?" 
+　　"他上次是怎样自杀的？" 
 
-"He hung himself with a rope." 
+　　"他用绳子上吊。" 
 
-"Who cut him down?" 
+　　"谁把他放下来的？" 
 
-"His niece." 
+　　"他侄女。" 
 
-"Why did they do it?" 
+　　"干吗要把他放下来？" 
 
-"Fear for his soul." 
+　　"为他的灵魂担忧。" 
 
-"How much money has he got?" 
+　　"他有多少钱？" 
 
-"He's got plenty." 
+　　"他有很多钱。" 
 
-"He must be eighty years old." 
+　　"他准有八十岁喽。" 
 
-"Anyway I should say he was eighty." 
+　　"不管怎样，我算准他有八十岁。" 
 
-"I wish he would go home. I never get to bed before three o'clock.What kind of hour is that to go to bed?" 
+　　"我真希望他回家去。我从来没有在三点钟以前睡觉过。那是个什么样的睡觉时间呀？" 
 
-"He stays up because he likes it." 
+　　"他因为不喜欢睡觉所以才不睡觉。" 
 
-"He's lonely. I'm not lonely. I have a wife waiting in bed for me."
+　　"他孤孤单单。我可不孤单。我有个老婆在床上等着我呢。" 
 
-"He had a wife once too." 
+　　"他从前也有过老婆。" 
 
-"A wife would be no good to him now." 
+　　"这会儿有老婆对他可没好处。" 
 
-"You can't tell. He might be better with a wife." 
+　　"话可不能这么说。他有老婆也许会好些。" 
 
-"His niece looks after him. You said she cut him down." 
+　　"他侄女会照料他。" 
 
-"I know." "I wouldn't want to be that old. An old man is a nasty thing." 
+　　"我知道。你刚才说是她把他放下来的。" 
+　　"我才不要活得那么老。老人邋里邋遢。" 
+　　"不一定都是这样。这个老人干干净净。他喝啤酒来并不滴滴答答往外漏。哪怕这会儿喝醉了。你瞧他。" 
 
-"Not always. This old man is clean. He drinks without spilling.Even now, drunk. Look at him." 
+　　"我才不想瞧他。我希望他回家去。他并不关心那些非干活不可的人。" 
 
-"I don't want to look at him. I wish he would go home. He has no regard for those who must work." 
+　　那老人从酒杯上抬起头来望望广场，又望望那两个侍者。 
 
-The old man looked from his glass across the square, then over at the waiters. 
+　　"再来杯白兰地，"他指着杯子说。那个着急的侍者跑了过去。 
 
-"Another brandy," he said, pointing to his glass. The waiter who was in a hurry came over. 
+　　"没啦，"他不顾什么句法地说，蠢汉在对醉汉或外国人说话时就这么说法。"今晚上没啦。打烊啦。" 
 
-"Finished," he said, speaking with that omission of syntax stupid people employ when talking to drunken people or foreigners. "Nomore tonight. Close now." 
+　　"再来一杯，"那老人说。 
 
-"Another," said the old man. 
+　　"不，没啦，"侍者一边拿块毛巾揩揩桌沿，一边摇摇头。 
 
-"No. Finished." The waiter wiped the edge of the table with a towel and shook his head. 
+　　老人站了起来，慢慢地数着茶托，打口袋里摸出一只装硬币的起夹子来，付了酒账，又放下半个比塞塔(西班牙货币单位)作小账。那个侍者瞅着他顺着大街走去，这个年纪很大的人走起路来，虽然脚步不挺稳，却很有神气。 
 
-The old man stood up, slowly counted the saucers, took a leathercoin purse from his pocket and paid for the drinks, leaving half a peseta tip. The waiter watched him go down the street, a very oldman walking unsteadily but with dignity. 
+　　"你干吗不让他呆下来喝酒呢？"那个不着急的侍者问道。他们这会儿正在拉下百叶窗。"还不到二点半呢。" 
 
-"Why didn't you let him stay and drink?" the unhurried waiter asked. They were putting up the shutters. "It is not half-past two." 
+　　"我要回家睡觉了。" 
 
-"I want to go home to bed." 
+　　"一个钟头算啥？" 
 
-"What is an hour?" 
+　　"他无所谓，我可很在乎。" 
 
-"More to me than to him." 
+　　"反正是一个钟头。" 
 
-"An hour is the same." 
+　　"你说得就象那个老人一模一样。他可以买啤酒回家去喝嘛。" 
 
-"You talk like an old man yourself. He can buy a bottle and drinkat home." 
+　　"这可不一样。" 
 
-"It's not the same." 
+　　"是呀，这是不一样的。"那个有老婆的侍者表示同意说。他不希望做得不公道，他只是有点儿着急。 
 
-"No, it is not," agreed the waiter with a wife. He did not wish to be unjust. He was only in a hurry. 
+　　"那么你呢？你不怕不到你通常的时间就回家吗？" 
 
-"And you? You have no fear of going home before your usual hour?" 
+　　"你想侮辱我吗？" 
 
-"Are you trying to insult me?" 
+　　"不，老兄，只是开开玩笑。" 
 
-"No, hombre, only to make a joke." 
+　　"不，"那个着急的侍者一边说，一边拉下了铁百叶窗后站了起来。"我有信心。我完全有信心。" 
 
-"No," the waiter who was in a hurry said, rising from pulling down the metal shutters. "I have confidence. I am all confidence." 
+　　"你有青春，信心，又有工作，"那个年纪大些的侍者说， 
 
-"You have youth, confidence, and a job," the older waiter said."You have everything." 
+　　"你什么都有了。" 
 
-"And what do you lack?" 
+　　"那么，你缺少什么呢？" 
 
-"Everything but work." 
+　　"除了工作，什么都缺。" 
 
-"You have everything I have." 
+　　"我有什么，你也都有了。" 
 
-"No. I have never had confidence and I am not young." 
+　　"不，我从来就没有信心，我也不年轻了。" 
 
-"Come on. Stop talking nonsense and lock up." 
+　　"好啦，好啦，别乱弹琴了，把门锁上吧。" 
 
-"I am of those who like to stay late at the cafe," the older waitersaid. 
+　　"我是属于那种喜欢在餐馆呆得很晚的人，"那个年纪大些的侍者说。"我同情那种不想睡觉的人，同情那种夜里要有亮光的人。" 
 
-"With all those who do not want to go to bed. With all those who need a light for the night." 
+　　"我要回家睡觉去了。" 
 
-"I want to go home and into bed." 
+　　"我们是不一样的，"那个年纪大些的侍者说。这会儿，他穿好衣服要回家了。"这不光是个年轻和信心的问题，虽然青春和信心都是十分美妙的。我每天晚上都很不愿意打烊，因为可能有人要上餐馆。" 
 
-"We are of two different kinds," the older waiter said. He was now dressed to go home. "It is not only a question of youth and confidence although those things are very beautiful. Each night I am reluctant to close up because there may be some one who needs the cafe." 
+　　"老兄，开通宵的酒店有的是。" 
 
-"Hombre, there are bodegas open all night long." 
+　　"你不懂。这儿是个干净愉快的餐馆。十分明亮。而且这会儿，灯光很亮，还有飘渺的树影。" 
 
-"You do not understand. This is a clean and pleasant cafe. It is well lighted. The light is very good and also, now, there are shadows of the leaves." 
+　　"再见啦，"那个年轻的侍者说。 
 
-"Good night," said the younger waiter. 
+　　"再见，"年纪大些的侍者说。他关了电灯，继续在自说自话。亮固然要很亮，但也必须是个干净愉快的地方。你不要听音乐。你肯定不要听音乐。你也不会神气地站在酒吧前面，虽然这会儿那里应有尽有。他怕什么？他不是怕，也不是发慌。他心里很有数，这是虚无缥缈。全是虚无缥缈，人也是虚无缥缈的。人所需要的只是虚无缥缈和亮光以及干干净净和井井有条。有些人生活于其中却从来没有感觉到，可是，他知道一切都是虚无缥缈(原文都是西班牙语)的，一切都是为了虚无缥缈，虚无缥缈，为了虚无缥缈。我们的虚无缥缈就在虚无缥缈中，虚无缥缈是你的名字，你的王国也叫虚无缥缈，你将是虚无缥缈中的虚无缥缈，因为原来就是虚无缥缈。给我们这个虚无缥缈吧，我们日常的虚无缥缈，虚无缥缈是我们的，我们的虚无缥缈，因为我们是虚无缥缈的，我们的虚无缥缈，我们无不在虚无缥缈中，可是，把我们打虚无缥缈中拯救出来吧；为了虚无缥缈。欢呼全是虚无缥缈的虚无缥缈，虚无缥缈与汝同在。他含笑站在一个酒吧前，那儿有架闪光的蒸气压咖啡机。 
 
-"Good night," the other said. Turning off the electric light he continued the conversation with himself, It was the light of course but it is necessary that the place be clean and pleasant. You do not want music. Certainly you do not want music. Nor can you stand before a bar with dignity although that is all that isprovided for these hours. What did he fear? It was not a fear ordread, It was a nothing that he knew too well. It was all anothing and a man was a nothing too. It was only that and light was all it needed and a certain cleanness and order. Some lived init and never felt it but he knew it all was nada y pues nada y naday pues nada. Our nada who art in nada, nada be thy name thy kingdom nada thy will be nada in nada as it is in nada. Give usthis nada our daily nada and nada us our nada as we nada our nadas and nada us not into nada but deliver us from nada; pues nada. Hail nothing full of nothing, nothing is with thee. He smiled and stood before a bar with a shining steam pressure coffee machine. 
+　　"你要什么？"酒吧招待问道。 
 
-"What's yours?" asked the barman. 
+　　"虚无缥缈。" 
 
-"Nada." 
+　　"又是个神经病，"酒吧招待说过后，转过头去。 
 
-"Otro loco mas," said the barman and turned away. 
+　　"来一小杯，"那个侍者说。 
 
-"A little cup," said the waiter. 
+　　酒吧招待倒了一杯给他。 
 
-The barman poured it for him. 
+　　"灯很亮，也很愉快，只是这个酒吧没有擦得很光洁，"侍者说。 
 
-"The light is very bright and pleasant but the bar is unpolished,"the waiter said. 
+　　酒吧招待看看他，但是，没有答腔，夜深了，不便谈话。 
 
-The barman looked at him but did not answer. It was too late at night for conversation. 
+　　"你要再来一小杯吗？"酒吧招待问道。 
 
-"You want another copita?" the barman asked. 
-
-"No, thank you," said the waiter and went out. He disliked bars and bodegas. A clean, well-lighted cafe was a very different thing. Now, without thinking further, he would go home to his room. Hewould lie in the bed and finally, with daylight, he would go to sleep. After all, he said to himself, it's probably only insomnia. Many must have it.
+　　"不，谢谢你，"侍者说罢，走出去了。他不喜欢酒吧和酒店。一个干净明亮的餐馆又是另一回事。现在他不再想什么了，他要回家，到自己屋里去。他要去躺在床上，最后，天亮了，他就要睡觉了。到头来，他对自己说，大概又只是失眠。许多人一定都失眠。
